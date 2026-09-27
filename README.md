@@ -231,4 +231,4 @@ Yet Another Zombie Survivors is the full free version of the game, with all feat
 Ready to face the zombie apocalypse? Download Yet Another Zombie Survivors now and unleash your inner survivor!
 
 ---
-**Last updated:** 2026-09-27 12:47:29 UTC
+**Last updated:** 2026-09-27 17:31:42 UTC
